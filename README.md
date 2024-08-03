@@ -12,3 +12,5 @@
 Você pode entrar em contato comigo🔽
 
 📧00001125227606sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/nsGNQy4ZMjEAAAAi/gato-guitarra.gif)
